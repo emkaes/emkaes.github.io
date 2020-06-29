@@ -6,3 +6,4 @@ Schroeder spielt gerne Klavier, besonders gerne Beethoven und wird von Lucy ange
 * fokussiert
 * introvertiert
 > Music makes things better!!
+<img src="https://i.pinimg.com/236x/e8/7a/b6/e87ab628c46cfb1777d672e2947a401f--linus-peanuts-comics-peanuts.jpg"/>
