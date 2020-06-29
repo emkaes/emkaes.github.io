@@ -5,3 +5,4 @@ Schroeder spielt gerne Klavier, besonders gerne Beethoven und wird von Lucy ange
 * musikalisch
 * fokussiert
 * introvertiert
+> Music makes things better!!
